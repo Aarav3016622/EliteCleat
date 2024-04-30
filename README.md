@@ -1,2 +1,2 @@
 # EliteCleat
-We Sell Soccer Cleats
+“Score Big, Play Bold – Gear Up with EliteCleat”
